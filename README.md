@@ -1,3 +1,18 @@
 # Lab-12
 Lab-12
 ![image](https://github.com/essaqur/Lab-12/assets/109910115/4e0a6074-252a-4bda-ac24-ffcc59080356)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/7b200d34-4758-4eaf-af4c-8ec374231f40)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/224abdfa-ec85-4e79-a2b1-5035d9d7c25d)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/152aca3b-c54a-4e4c-bfcc-86c9a8514af6)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/2783579f-6314-42f8-85ec-7fed36e1476d)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/4810f219-6beb-447d-9519-747867b1b438)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/9f2ea631-e745-4515-bbc0-ec80ceef6bf9)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/5bbd1b89-f99d-41a0-a47c-7f15804f12ee)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/e20bef3d-c6e7-4179-8113-222b64b4e325)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/2ba4d7df-7817-415b-936e-18f0b73379a9)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/ca08ee64-a1b6-4c3f-92dc-da1dcbf21722)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/96693b00-f5c4-4e20-a621-48555468b4d2)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/b9a22377-3031-4afb-b4c7-7d87bd5f4e5e)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/bfcc84f7-50c0-4e84-a86a-4968681bef33)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/02829556-a137-4efd-9774-4f43ad598a9a)
+![image](https://github.com/essaqur/Lab-12/assets/109910115/66108f9e-7e88-4d87-8541-bbbe99edbfed)
